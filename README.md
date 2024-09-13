@@ -1,0 +1,1 @@
+# serwer_wysy-anie_obraz-w
